@@ -18,4 +18,3 @@
 2. **Plot**: A mix of mystery, suspense, and drama.  
 3. **Visual Effects**: Stunning representations of the Upside Down.  
 
-![Stranger Things Poster](https://upload.wikimedia.org/wikipedia/en/f/f7/Stranger_Things_season_4.jpg)  
